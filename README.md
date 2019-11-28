@@ -1,0 +1,2 @@
+# alpha
+My initial jottings
